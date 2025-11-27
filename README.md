@@ -1,16 +1,19 @@
-## Hi there 👋
+<img width="100" height="100" alt="Untitled88_20251126152351" src="https://github.com/user-attachments/assets/04a8e620-1a6d-4f6f-aba8-2bce0d91cc06" />
 
-<!--
-**GunsCigarette/GunsCigarette** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+AƚαႦσσƙ Hҽɾҽ!→https://gunscigarette.atabook.org/
 
-Here are some ideas to get you started:
+⋆˚꩜.ᐟ 
+𝟏𝟔+ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+𝐏𝐋𝐄𝐀𝐒𝐄 𝐃𝐍𝐈!! 𝐢𝐟.., 𝐏𝐫𝐨𝐬𝐡𝐢𝐩𝐩𝐞𝐫,𝐭𝐫𝐚𝐧𝐬𝐩𝐡𝐨𝐛𝐬,𝐡𝐨𝐦𝐨𝐩𝐡𝐨𝐛𝐞𝐬,𝐫𝐚𝐜𝐢𝐬𝐭,𝐋𝐨𝐥𝐢𝐜𝐨𝐧 𝐬𝐮𝐩𝐩𝐨𝐫𝐭𝐞𝐫𝐬!, 𝐝𝐬𝐦𝐩 𝐟𝐚𝐧𝐬..𝐞𝐭𝐜!
+
+
+ฅ^>⩊<^ฅ⋆˚꩜.ᐟ 
+
+
+
+𝗣𝗹𝘀 𝗶𝗻𝘁 𝗶𝗳 𝘂 𝗹𝗶𝗸𝗲!, 𝗥𝗱𝗿𝟮,𝗱𝗶𝘀𝗽𝗮𝘁𝗰𝗵,𝗳𝗻,𝗷𝗷𝗸 𝗳𝗮𝗻𝘀, 𝗴𝗼𝗿𝗶𝗹𝗹𝗮𝘇 𝗳𝗮𝗻𝘀, 𝗧𝘆𝗹𝗲𝗿 𝘁𝗵𝗲 𝗰𝗿𝗲𝗮𝘁𝗼𝗿 𝗳𝗮𝗻𝘀,𝗸𝗻𝘆,𝗚𝗮𝗰𝗵𝗶𝗮𝗸𝘂𝘁𝗮,𝗠𝗟𝗣,𝗸𝗽𝗱𝗵,𝗮𝘁𝘀𝘃,𝗼𝗽,𝗹𝗼𝗼𝗸𝗶𝘀𝗺 𝗳𝗮𝗻𝘀! 𝗲𝘁𝗰!
+
+
+⋆˚꩜.ᐟ
