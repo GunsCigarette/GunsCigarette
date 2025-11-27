@@ -17,3 +17,5 @@ AƚαႦσσƙ Hҽɾҽ!→https://gunscigarette.atabook.org/
 
 
 ⋆˚꩜.ᐟ
+<img width="100" height="100" alt="Untitled88_20251126145520" src="https://github.com/user-attachments/assets/cf388964-277d-46ea-8cd6-bf9a79168e12" />
+
