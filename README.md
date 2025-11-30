@@ -1,4 +1,5 @@
 <img width="100" height="100" alt="Untitled88_20251126152351" src="https://github.com/user-attachments/assets/04a8e620-1a6d-4f6f-aba8-2bce0d91cc06" />
+<img width="100" height="100" alt="Untitled95_20251130002416" src="https://github.com/user-attachments/assets/1e99e036-67bd-455c-ad01-3b0895be13eb" />
 
 AƚαႦσσƙ Hҽɾҽ!→https://gunscigarette.atabook.org/
 
@@ -8,6 +9,7 @@ AƚαႦσσƙ Hҽɾҽ!→https://gunscigarette.atabook.org/
 
 𝐏𝐋𝐄𝐀𝐒𝐄 𝐃𝐍𝐈!! 𝐢𝐟.., 𝐏𝐫𝐨𝐬𝐡𝐢𝐩𝐩𝐞𝐫,𝐭𝐫𝐚𝐧𝐬𝐩𝐡𝐨𝐛𝐬,𝐡𝐨𝐦𝐨𝐩𝐡𝐨𝐛𝐞𝐬,𝐫𝐚𝐜𝐢𝐬𝐭,𝐋𝐨𝐥𝐢𝐜𝐨𝐧 𝐬𝐮𝐩𝐩𝐨𝐫𝐭𝐞𝐫𝐬!, 𝐝𝐬𝐦𝐩 𝐟𝐚𝐧𝐬..𝐞𝐭𝐜!
 
+<img width="250" height="125" alt="Untitled96_20251130002822" src="https://github.com/user-attachments/assets/d6bb0a38-3e7d-431f-a509-239b0d395cc7" />
 
 ฅ^>⩊<^ฅ⋆˚꩜.ᐟ 
 
@@ -18,4 +20,6 @@ AƚαႦσσƙ Hҽɾҽ!→https://gunscigarette.atabook.org/
 
 ⋆˚꩜.ᐟ
 <img width="100" height="100" alt="Untitled88_20251126145520" src="https://github.com/user-attachments/assets/cf388964-277d-46ea-8cd6-bf9a79168e12" />
+<img width="100" height="100" alt="Untitled95_20251130002325" src="https://github.com/user-attachments/assets/a8f2c2d6-b1e1-4931-ad20-b5a12a291ecf" />
+
 
